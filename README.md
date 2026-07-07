@@ -1,2 +1,0 @@
-# nythxionai
-Nythxion Terms 
